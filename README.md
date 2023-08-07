@@ -5,6 +5,6 @@ jjlkklxzxzzx- 👋 Hi, I’m @mykytaskosvd
 - 📫 How to reach me ...as
 xzcsdasadzxasdsadqweqwe
 <!---zxc
-mykytasko/mykytasko is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+mykytasko/mykytasko is a ✨ special ✨ repaository because its `README.md` (this file) appears on your GitHub profile.ddasvc
 You can click the Preview link to taADFke a look at your changes.
 --->
