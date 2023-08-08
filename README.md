@@ -1,10 +1,10 @@
 jjlkklxzxzzx- 👋 Hi, I’m @mykytaskosvd
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...s
+- 💞️ I’m looking tosad collaborate on ...s
 - 📫 How to reach me ...as
 xzcsdasadzxasdsadqweqwe
-<!---zxc
-mykytasko/mykytasko is a ✨ special ✨ repaository because its `README.md` (this file) appears on your GitHub profile.ddasvc
+<!---zxcdas
+mykytasko/mykytasko is a ✨ special ✨ repaository because its `READMfdgd` (this file) appears on your GitHub profile.dgdf
 You can click the Preview link to taADFke a look at your changes.
 --->
