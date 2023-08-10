@@ -1,6 +1,5 @@
 jjlkklxzxzzx- 👋 Hi, I’m @mykytaskosvd
-- 👀 I’m interested in ...
-- 🌱 I’m fdg on ...s
+- 👀 I’m integdf
 - 📫 How to reach me ...as
 xzcsdasadzxasdsadqweqwehfg
 <!---zxcdashfg
